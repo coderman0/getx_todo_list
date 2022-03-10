@@ -23,7 +23,5 @@ For support visit https://rdvan.codes or join our Discord server.
 
 ![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/dxdech3.png) ![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/bga0n2z.png)
 
-![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/ssyk9l1.png)
-
-![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/sssiz01.png)
+![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/ssyk9l1.png) ![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/sssiz01.png)
   
